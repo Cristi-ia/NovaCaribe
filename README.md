@@ -1,2 +1,0 @@
-# NovaCaribe
-Textilería
